@@ -1,0 +1,1 @@
+Ahoj, jsem začátečník Lukáš
